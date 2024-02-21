@@ -1,1 +1,1 @@
-pART OF tEA TESTNET
+pART OF tEA TESTNETPart of Tea testnet
